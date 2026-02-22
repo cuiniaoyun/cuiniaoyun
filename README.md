@@ -58,10 +58,10 @@ iPhone小火箭客户端需要点击APP右下角设置，延迟测试方式选IC
 
 翻墙后访问的永久网址：
 
-https://cuiniaoyun.top
+https://cuiniao.cloud
 
 https://cuiniaoyun.xyz
 
-飞鸟云官网地址防失联发布页： https://github.com/cuiniaoyun
+翠鸟云官网地址防失联发布页： https://github.com/cuiniaoyun
 
 请加入我们的TG电报群群组:https://t.me/cuiniaoyun
