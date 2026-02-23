@@ -62,4 +62,4 @@ https://cuiniaoyun.xyz
 
 翠鸟云官网地址防失联发布页： https://github.com/cuiniaoyun
 
-请加入我们的TG电报群群组:https://t.me/cuiniaoyunjichang
+请加入我们的TG电报群群组:https://t.me/cuiniaoyun
