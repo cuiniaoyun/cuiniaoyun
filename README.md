@@ -5,8 +5,34 @@
 您可以获得通过该邀请链接注册的用户所付款的 20% 佣金。
 
 翠鸟云最新国内免翻网址,用手机流量访问：(2026/3/1更新)
+## 固定入口
 
-https://cuiniaoyun.xyz
+[1] [cuiniaoyun.xyz](https://cuiniaoyun.xyz) ✅
+[2] [entry.cuiniaoyun.xyz](https://entry.cuiniaoyun.xyz) ✅
+[3] [gate.cuiniaoyun.xyz](https://gate.cuiniaoyun.xyz) ✅
+[4] [user.cuiniaoyun.xyz](https://user.cuiniaoyun.xyz) ✅
+[5] [portal.cuiniaoyun.xyz](https://portal.cuiniaoyun.xyz) ✅
+[6] [access.cuiniaoyun.xyz](https://access.cuiniaoyun.xyz) ✅
+
+## 备用入口
+
+[7] [bycgqd.cuiniaoyun.xyz](https://bycgqd.cuiniaoyun.xyz)
+[8] [rrxuqb.cuiniaoyun.xyz](https://rrxuqb.cuiniaoyun.xyz)
+[9] [jkaizn.cuiniaoyun.dpdns.org](https://jkaizn.cuiniaoyun.dpdns.org)
+[10] [dshjer.cuiniaoyun.dpdns.org](https://dshjer.cuiniaoyun.dpdns.org)
+[11] [plmzqn.cuiniaoyun.dpdns.org](https://plmzqn.cuiniaoyun.dpdns.org)
+[12] [zekvnp.cuiniaoyun.dpdns.org](https://zekvnp.cuiniaoyun.dpdns.org)
+[13] [tkkdsb.cuiniaoyun.xyz](https://tkkdsb.cuiniaoyun.xyz)
+[14] [darvgn.cuiniaoyun.dpdns.org](https://darvgn.cuiniaoyun.dpdns.org)
+[15] [pxurkk.cuiniaoyun.xyz](https://pxurkk.cuiniaoyun.xyz)
+[16] [rbprlg.cuiniaoyun.dpdns.org](https://rbprlg.cuiniaoyun.dpdns.org)
+[17] [qeomqs.cuiniaoyun.dpdns.org](https://qeomqs.cuiniaoyun.dpdns.org)
+[18] [jtdosg.cuiniaoyun.dpdns.org](https://jtdosg.cuiniaoyun.dpdns.org)
+[19] [anxgge.cuiniaoyun.dpdns.org](https://anxgge.cuiniaoyun.dpdns.org)
+[20] [gfkkak.cuiniaoyun.dpdns.org](https://gfkkak.cuiniaoyun.dpdns.org)
+[21] [jpaivi.cuiniaoyun.dpdns.org](https://jpaivi.cuiniaoyun.dpdns.org)
+
+---
 
 遇到问题联系官网右下角蓝色图标在线客服解决，或者发工单。 请知悉无退款服务。
 
